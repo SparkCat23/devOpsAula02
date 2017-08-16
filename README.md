@@ -2,6 +2,8 @@
 
 Scarlett Johansson
 
-Will Smith
+Natelie Portman
 
 Johnny Depp
+
+Leonardo DiCaprio
